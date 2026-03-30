@@ -2,7 +2,7 @@
 - 👀 I’m interested in new programs
 - 🌱 I’m currently learning new languages
 - 💞️ I’m looking to collaborate on ur work 
-- 📫 nextgorav@gmail.com
+- 📫 luthragorav7@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i love creating new programs 
 
